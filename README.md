@@ -1,1 +1,1 @@
-# minha-erica
+projeto abundância grupo alfa e Ômega 
